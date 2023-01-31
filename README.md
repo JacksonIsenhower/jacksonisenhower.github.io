@@ -1,1 +1,0 @@
-# jacksonisenhower.github.io
